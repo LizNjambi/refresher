@@ -1,1 +1,3 @@
 # refresher
+## Aid letter
+As a research student, I believe in the power of data and its important influence in driving effective decision making.  Taking this course will help me achieve my career goals of being an effective researcher with the ability to contribute to solutions that will save and change the lives of my society. The skills of  obtaining accurate information during data collection and finding patterns and trends is one that I value greatly and would implement in all my research. In future, I would also like to have a teaching career and undertaking this course will ensure that my future students will have important and accurate skills in this field. This course will supplement my research skills and make me a better Social Scientist.
